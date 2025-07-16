@@ -4,7 +4,7 @@
 
 ---
 
-## 📍 Batumi Esenyurt'da Özel Tanışmalar
+## 📍 Batumi  Özel Tanışmalar
 
 Batumi bölgesinde, gizliliğe ve güvene dayalı bire bir buluşmalar için profesyonel çözümler sunuyoruz. Gürcistanın merkezi noktalarından biri olan Batumi, özel tanışmalar için güvenli, hızlı ve konforlu bir seçenek arayanlar için ideal bir bölgedir.
 
@@ -19,7 +19,7 @@ Batumi bölgesinde, gizliliğe ve güvene dayalı bire bir buluşmalar için pro
   Karşılıklı saygı ve memnuniyet esasına dayalı özel tanışma hizmeti.
 
 - 🏨 **Otel veya Belirttiğiniz Adres Seçeneği**  
-  Batumi içi lokasyon esnekliği. Otel, rezidans ya da özel adres.
+  Batumi Escort içi lokasyon esnekliği. Otel, rezidans ya da özel adres.
 
 - 🌐 **Dil Desteği**  
   Türkçe, İngilizce ve Arapça iletişim imkanı.
