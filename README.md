@@ -19,7 +19,7 @@ Batumi bölgesinde, gizliliğe ve güvene dayalı bire bir buluşmalar için pro
   Karşılıklı saygı ve memnuniyet esasına dayalı özel tanışma hizmeti.
 
 - 🏨 **Otel veya Belirttiğiniz Adres Seçeneği**  
-  İstanbul içi lokasyon esnekliği. Otel, rezidans ya da özel adres.
+  Batumi içi lokasyon esnekliği. Otel, rezidans ya da özel adres.
 
 - 🌐 **Dil Desteği**  
   Türkçe, İngilizce ve Arapça iletişim imkanı.
